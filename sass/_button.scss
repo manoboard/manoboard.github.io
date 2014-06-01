@@ -1,0 +1,31 @@
+.button {
+  margin-top: 10px;
+  padding: 15px 45px;
+  font-size: 20px;
+  line-height: 60px;
+  vertical-align: middle;
+  cursor: pointer;
+  font-weight: 700;
+  font-size: 1em;
+   color: #093b75;
+  text-transform: uppercase;
+  letter-spacing: 1px;
+  background-color: #fff
+}
+
+.button a, .button a:hover, .button a:active {
+  color: #093b75;
+  text-transform: uppercase;
+}
+
+li.social {
+  padding: 15px 45px;
+  a {
+    padding: 0 5px 0 0;
+  }
+}
+
+.fa {
+  font-size: 25px;
+}
+

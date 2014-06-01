@@ -1,0 +1,6 @@
+markdown:    redcarpet
+permalink: 	 pretty
+title: Man Over Board
+description: Man Over Board blog
+gems:
+- jekyll-sitemap
