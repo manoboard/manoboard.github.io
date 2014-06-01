@@ -7,7 +7,7 @@ tags:
 - skatepark
 
 ---
-![In Dresden]({{site.baseurl}}/images/kevin-dresden.jpg)
+![In Dresden]({{site.url}}/images/kevin-dresden.jpg)
 
 In the spring of 2012, I traveled with my friend, Mark, to Dresden, Germany, the first city on a three-week trip around central Europe.  We opted for a multi-stop, morning-to-morning flight to save money, a decision we were already regretting as we started flying west from Boston, rather than over the Atlantic toward Germany.  It was about 7am local time when finally we reached our destination.  Neither of us had slept much on the plane, and the last traces of excitement that had kept us awake were rapidly fading, leaving us dead on our feet, in search of plush bedding and heavy rest. Unfortunately, German hotels, like those in America, generally do not allow guests to check in at such an early hour.  Exhausted, anxious, and altogether unprepared to handle the difficulties that come with foreign travel, we left our bags at the front desk, took our skateboards, and headed around the corner to a skatepark that we had spotted while trying to find the hotel.  Stepping foot on my skateboard added a welcome note of comfort to an otherwise stressful morning.  I was finally starting to relax when another skateboarder said something to me in what I presumed to be German.  A deer in front of headlights, my mind raced to think of the one phrase I had tried to memorize on the plane.  Stuttering, and looking to Mark for support, I spoke.
 
