@@ -3,7 +3,7 @@ layout: blog_post
 title: Detroit, Sarajevo, and My Thesis
 tags: 
 - skateboarding
-- "ruin porn"
+- ruin-porn
 - Sarajevo
 - Balkans
 - slang
