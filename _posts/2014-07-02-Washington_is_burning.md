@@ -1,4 +1,5 @@
 ---
+
 layout: blog_post
 title: Washington is Burning
 tags: 
