@@ -1,9 +1,9 @@
 ---
 layout: blog_post
-title: Well, How Did I Get Here?
+title: Sarajevo: First Impressions
 tags: 
-- skateboarding
-- Germany
+- Bosnia
+- Sarajevo
 - skatepark
 
 ---
