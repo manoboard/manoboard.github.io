@@ -2,6 +2,7 @@
 layout: blog_post
 title: Sarajevo: First Impressions
 tags: 
+
 - Bosnia
 - Sarajevo
 - skatepark
