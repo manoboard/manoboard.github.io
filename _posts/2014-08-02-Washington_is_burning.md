@@ -8,7 +8,7 @@ tags:
 - Washington
 
 ---
-<a href="https://www.flickr.com/photos/125061170@N06/14786295366" title="Wildfire, Central WA by Kevin Bicknell, on Flickr"><img src="https://farm6.staticflickr.com/5569/14786295366_738d0cc235_b.jpg" width="1024" height="768" alt="Wildfire, Central WA"></a>
+<a href="https://www.flickr.com/photos/125061170@N06/14786295366" title="Wildfire, Central WA by Kevin Bicknell, on Flickr"><img src="https://farm6.staticflickr.com/5569/14786295366_738d0cc235_b.jpg" alt="Wildfire, Central WA"></a>
 I awoke to my phone alarm at 5am and climbed out of the canyon that had formed in my slowly leaking air mattress.  Today was the day - I had known it was coming, but never quite expected it to happen - I was leaving Seattle. My Dad had flown out a couple days earlier to help me pack and to serve as company on the long drive east.  Within an hour we loaded my remaining belongings into the car, grabbed coffee, and hit the road.  As we merged onto I-5, I officially made the claim that I would return to Seattle someday.  Had I known that “someday” actually meant “later today”, I might have chosen my words more carefully.
 
 Our plan was to drive through North Cascades National Park via route 20, heading east and ending our first day in Missoula, MT.  Not knowing when we would get another chance to see the North Cascades, we decided the slight detour would be worthwhile. Had I known we would cross those mountains twice in that day, I might have reconsidered.
