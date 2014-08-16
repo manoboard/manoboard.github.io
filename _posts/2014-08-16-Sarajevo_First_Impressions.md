@@ -1,6 +1,6 @@
 ---
 layout: blog_post
-title: Sarajevo: First Impressions
+title: Sarajevo - First Impressions
 tags: 
 
 - Bosnia
