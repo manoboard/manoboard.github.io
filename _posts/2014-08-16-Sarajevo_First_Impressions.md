@@ -11,7 +11,7 @@ tags:
 
 I haven't been in Sarajevo long enough to make any profound statements about the city, but I have been here long enough to know that I'm going to enjoy my stay.  The scars of heavy artillery are apparent, but if the people of Sarajevo have war on their minds they certainly hide it well. Here is just a small sampling of what I've seen so far.
 
-<a href="https://www.flickr.com/photos/125061170@N06/14743447058/" title="Bascarsija, Sarajevo by manoboard88, on Flickr"><img src="https://farm4.staticflickr.com/3893/14743447058_f955cabea3_b.jpg" width="768" height="1024" alt="Bascarsija, Sarajevo"></a>
+<a href="https://www.flickr.com/photos/125061170@N06/14743447058/" title="Bascarsija, Sarajevo by manoboard88, on Flickr"><img src="https://farm4.staticflickr.com/3893/14743447058_f955cabea3_b.jpg" alt="Bascarsija, Sarajevo"></a>
 
 Bascarsija, the tourist center of Sarajevo.  This labyrinth of cobblestone alleyways could consume an entire trip to the city, I'm sure.
 
