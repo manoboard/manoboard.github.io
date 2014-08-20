@@ -26,4 +26,4 @@ In many ways, the stray dogs of Sarajevo are a fitting metaphor for the city its
 
 <a href="https://www.flickr.com/photos/125061170@N06/14797201448/" title="image by manoboard88, on Flickr"><img src="https://farm4.staticflickr.com/3904/14797201448_4d8eb407f8_c.jpg" width="800" height="600" alt="image"></a>
 
-<a href="https://www.flickr.com/photos/125061170@N06/14797259617/" title="image by manoboard88, on Flickr"><img src="https://farm6.staticflickr.com/5571/14797259617_78fec33820_c.jpg" width="800" height="600" alt="image"></a>
+<a href="https://www.flickr.com/photos/125061170@N06/14797259617/" title="image by manoboard88, on Flickr"><img src="https://farm6.staticflickr.com/5571/14797259617_78fec33820_z.jpg" width="640" height="480" alt="image"></a>
