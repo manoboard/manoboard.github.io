@@ -18,12 +18,12 @@ The abundance of stray dogs is the characteristic of the city that caught me mos
 
 In the following days, my encounters with strays became more frequent.  Alleyways, public parks, tourist sites, you name it; stray dogs can be found anywhere in the city.  The more I came across them however, I began to realize that my fear of these animals was wholly unnecessary.  Of course, a certain degree of caution should be exercised in any encounter with a stray animal.  Things like rabies do exist, and on a less severe note, things like fleas could be a nuisance to the bright eyed traveler.  However, with this said, it is necessary to understand that a stray dog in Sarajevo is treated as just another resident, albeit on four legs.  Most of the human population fails to even notice when a dog is laying nearby, and the dogs themselves seem rather indifferent to humans unless they offer some form of sustenance.  
 
-<a href="https://www.flickr.com/photos/125061170@N06/14797203738/" title="image by manoboard88, on Flickr"><img src="https://farm4.staticflickr.com/3896/14797203738_e7cd78a9fa_c.jpg" width="800" height="600" alt="image"></a>
+<a href="https://www.flickr.com/photos/125061170@N06/14797203738/" title="image by manoboard88, on Flickr"><img src="https://farm4.staticflickr.com/3896/14797203738_e7cd78a9fa_z.jpg" width="640" height="480" alt="image"></a>
 
 The dogs often travel in small cliques; a word I use in favor of the term, "pack", which likens them to the wolf, a creature with whom they share very little in terms of temperament and demeanor.  They lounge in the shade provided by parked cars or narrow streets during the day, and wander at night in search of scraps.  They stop and wait for the walk signal at crosswalks, and lap refreshment from the catch basins of public drinking fountains.  Occasionally you'll find one rummaging in a dumpster, but that happens with people too.
 
 In many ways, the stray dogs of Sarajevo are a fitting metaphor for the city itself:  Occasionally rough around the edges, often misunderstood, feared by westerners, but in reality, irresistibly charming.  
 
-<a href="https://www.flickr.com/photos/125061170@N06/14797201448/" title="image by manoboard88, on Flickr"><img src="https://farm4.staticflickr.com/3904/14797201448_4d8eb407f8_c.jpg" width="800" height="600" alt="image"></a>
+<a href="https://www.flickr.com/photos/125061170@N06/14797201448/" title="image by manoboard88, on Flickr"><img src="https://farm4.staticflickr.com/3904/14797201448_4d8eb407f8_z.jpg" width="640" height="480" alt="image"></a><a 
 
-<a href="https://www.flickr.com/photos/125061170@N06/14797259617/" title="image by manoboard88, on Flickr"><img src="https://farm6.staticflickr.com/5571/14797259617_78fec33820_z.jpg" width="640" height="480" alt="image"></a>
+href="https://www.flickr.com/photos/125061170@N06/14797259617/" title="image by manoboard88, on Flickr"><img src="https://farm6.staticflickr.com/5571/14797259617_78fec33820_z.jpg" width="640" height="480" alt="image"></a>
