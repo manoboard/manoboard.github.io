@@ -20,7 +20,7 @@ Just as I began to think I had missed my mark, and was simply wandering around a
 The bobsled track itself is quite impressive.  I spent about an hour climbing around on it, trying to picture what it had been like to race down the structure with the eyes of my country anticipating my every move.  I also spent a good deal of time trying to decide if it is skateable.  If I do return with my skateboard, I'll be posting again about this place, but if not here are a few photos from the journey for you to enjoy.
 
 
-The first of many stunning views aloing the way.
+The first of many stunning views along the way.
 <a href="https://www.flickr.com/photos/125061170@N06/15055555655/" title="image by manoboard88, on Flickr"><img src="https://farm4.staticflickr.com/3912/15055555655_5d01db2882_z.jpg" width="640" height="480" alt="image"></a>
 
 I took a wrong turn and came across this graveyard littered with what appeared to be extremely shallow graves.
