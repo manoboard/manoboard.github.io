@@ -1,6 +1,6 @@
 ---
 layout: blog_post
-title: Skating the Boblsed Track
+title: Skating the Bobsled Track
 tags: 
 - skateboarding
 - Bosnia
