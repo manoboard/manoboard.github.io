@@ -7,7 +7,6 @@ tags:
 - Scenery
 
 ---
-
 In the weeks leading up to my brief vacation in Dubrovnik, Croatia, each person I spoke with about the "Pearl of the Adriatic" had the same response: "Dubrovnik is great, BUT."  Their sentences often finished with the descriptions "it's expensive", "it's crowded", or "it's touristy".  As a result, my expectations for the city were somewhat low.  Not surprisingly, I found Dubrovnik to be all of the things that I had been warned about, but I also found it to be quite spectacular both visually and historically. Because I had prepared myself for disappointment, I was not particularly bothered by the overwhelming presence of American twenty-somethings, the painfully slow-moving crowds of elderly British people, or the groups of trucker-hat-wearing Australians sitting indian style at every bus stop.  In the spirit of the location, I dove right in (literally and figuratively) and allowed myself to be a tourist for a few days.  I slept late, ate pizza, and of course, sat on the beach.  
 
 In terms of inspiration for blog posts however, Dubrovnik did little to provoke me.  Instead, I let my mind relax and spent the final days of my first month on the road rebooting and preparing for the next leg of the trip.  For this stop, the pictures will have to tell the story for me.
