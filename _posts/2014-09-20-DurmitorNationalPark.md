@@ -1,0 +1,30 @@
+---
+layout: blog_post
+title: Durmitor National Park
+tags: 
+Balkans
+Montenegro
+Walking
+Scenery
+
+---
+
+
+<a href="https://www.flickr.com/photos/125061170@N06/15113539639/" title="image by manoboard88, on Flickr"><img src="https://farm4.staticflickr.com/3902/15113539639_ddcddc095d_z.jpg" width="640" height="480" alt="image"></a>
+
+Whoever bestowed Montenegro its name must have been in Durmitor National Park on a cloudy day.  Nowhere else, on Earth or in history, has a country's title so perfectly depicted its landscape. On a clear day, descriptions of Washington's North Cascade mountains could be adequately applied to those of the Durmitor Massif.  Coniferous trees grow in close proximity to one another, their interweaving branches creating a roof above the heads of a diverse set of alpine flora and fauna. At the tree-line, the craggy faces of the park's highest peaks waste no time in nearly doubling the height of the hills below. Accordingly, the greatest elevations of the park, complete with the hazards of loose stones and near vertical sections of trail, are best left to experienced mountaineers. Outside of the park, in the surrounding towns of Zabljak and Pitomine, one could be convinced they are looking at the grassy farmland of northern Vermont. Smoke wafts in wispy streams from farmhouse chimneys, cows and goats roam in endless pastures, and bewitched by the scent of wood-stove fires, one wonders whether the seasons ever change here.
+
+On a cloudy day, when the gloom undercuts the magnificent granite faces of Durmitor's highest summits, the park becomes an eerie and introspective locale whose medieval mystique I have never encountered outside the realm of fantasy novels. At times I felt as if I should be carrying a ring around my neck rather than a messenger bag containing salami and water, and on more than one occasion I gazed into the depths of the black pine forest, half expecting the trees themselves to take up root and walk alongside me. 
+
+After nearly two weeks in locations equipped with palm trees and beaches, the crisp air and remote setting of the park breathed a healthy dose of inspiration into my lungs. I was fortunate enough to meet a Belgian couple and a girl from Siberia on the bus from Kotor, who became my hiking companions. Though ill equipped for such a trek, I quickly found myself miles into the mountains, looking over some of the most magnificent sights I have ever laid eyes upon.  In reality, I saw only a small fraction of Durmitor.  I suspect that one could spend days wandering its expanses and still leave feeling like they barely scratched the surface. 
+
+<a href="https://www.flickr.com/photos/125061170@N06/15299903012/" title="image by manoboard88, on Flickr"><img src="https://farm6.staticflickr.com/5567/15299903012_7b79d09323_z.jpg" width="640" height="480" alt="image"></a>
+
+<a href="https://www.flickr.com/photos/125061170@N06/15113593750/" title="image by manoboard88, on Flickr"><img src="https://farm6.staticflickr.com/5582/15113593750_b813b3aa11_z.jpg" width="640" height="480" alt="image"></a>
+
+<a href="https://www.flickr.com/photos/125061170@N06/15300311475/" title="image by manoboard88, on Flickr"><img src="https://farm6.staticflickr.com/5572/15300311475_62ef16604c_z.jpg" width="640" height="480" alt="image"></a>
+
+<a href="https://www.flickr.com/photos/125061170@N06/15277263616/" title="image by manoboard88, on Flickr"><img src="https://farm6.staticflickr.com/5556/15277263616_85837b9577_z.jpg" width="480" height="640" alt="image"></a>
+
+<a href="https://www.flickr.com/photos/125061170@N06/15277264686/" title="image by manoboard88, on Flickr"><img src="https://farm4.staticflickr.com/3898/15277264686_47cd4f015b_z.jpg" width="640" height="480" alt="image"></a>
+
