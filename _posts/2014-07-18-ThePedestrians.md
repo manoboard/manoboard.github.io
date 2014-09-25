@@ -4,7 +4,7 @@ title: The Pedestrians
 tags: 
 - skateboarding
 - Seattle
-- walking
+- Walking
 
 ---
 <a href="https://www.flickr.com/photos/125061170@N06/14688435105" title="Seattle from Alki Beach by Kevin Bicknell, on Flickr"><img src="https://farm3.staticflickr.com/2900/14688435105_43758e39b1.jpg" width="500" height="375" alt="Seattle from Alki Beach"></a>
