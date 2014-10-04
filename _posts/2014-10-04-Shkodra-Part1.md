@@ -4,7 +4,7 @@ title: Shkodra - Part 1
 tags: 
 - Albania
 - Balkans
-- Europe
+- Shkodra
 
 ---
 
