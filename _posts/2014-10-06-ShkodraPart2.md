@@ -3,8 +3,6 @@ layout: blog_post
 title: Shkodra - Part 2
 tags: 
 - Albania
-- Balkans
-- Europe
 
 ---
 
