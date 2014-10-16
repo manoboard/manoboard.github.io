@@ -4,8 +4,7 @@ layout: blog_post
 title: Niš - Ruin Porn Revisited
 tags: 
 - Serbia
-- Balkans
-- ruin-porn
+- Ruin-Porn
 
 ---
 
