@@ -4,7 +4,7 @@ title: Washington is Burning
 tags: 
 - Road-Trip
 - Scenery
-- Unites-States
+- United-States
 
 ---
 <a href="https://www.flickr.com/photos/125061170@N06/14786295366" title="Wildfire, Central WA by Kevin Bicknell, on Flickr"><img src="https://farm6.staticflickr.com/5569/14786295366_738d0cc235_b.jpg" alt="Wildfire, Central WA"></a>
