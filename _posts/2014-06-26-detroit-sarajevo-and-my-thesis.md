@@ -2,11 +2,9 @@
 layout: blog_post
 title: Detroit, Sarajevo, and My Thesis
 tags: 
-- skateboarding
-- ruin-porn
-- Sarajevo
-- Balkans
-- slang
+- Skateboarding
+- Ruin-Porn
+- Bosnia-Herzegovina
 ---
 A couple years ago a friend lent me Jeffrey Eugenides’s “The Marriage Plot”, a lengthy yet surprisingly quick read, which I thoroughly enjoyed.  For whatever reason, I never branched out into the rest of the author’s repertoire, and never learned much about the man himself.  However, a few weeks ago one of my old favorite sites, [Atlas Obscura](http://www.boat-mag.com/against-ruin-porn/), linked to an article from an issue of Boat Magazine written by Eugenides titled, “[Against Ruin Porn](http://www.boat-mag.com/against-ruin-porn/)”.  
 
