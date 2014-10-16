@@ -2,9 +2,8 @@
 layout: blog_post
 title: The Stray Dogs of Sarajevo
 tags: 
-- Sarajevo
 - Wildlife
-- Bosnia
+- Bosnia-Herzegovina
 
 ---
 
