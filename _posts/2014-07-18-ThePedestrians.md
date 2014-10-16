@@ -3,7 +3,7 @@ layout: blog_post
 title: The Pedestrians
 tags: 
 - Skateboarding
-- Seattle
+- United-States
 - Walking
 
 ---
