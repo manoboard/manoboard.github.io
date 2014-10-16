@@ -2,9 +2,9 @@
 layout: blog_post
 title: Well, How Did I Get Here?
 tags: 
-- skateboarding
+- Skateboarding
 - Germany
-- skatepark
+- Skatepark
 
 ---
 ![In Dresden]({{site.url}}/images/kevin-dresden.jpg)
