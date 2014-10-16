@@ -3,8 +3,7 @@ layout: blog_post
 title: Shkodra - Part 1
 tags: 
 - Albania
-- Balkans
-- Shkodra
+- Scenery
 
 ---
 
