@@ -2,8 +2,7 @@
 layout: blog_post
 title: The Sarajevo Bobsled Track
 tags: 
-- Sarajevo
-- Bosnia
+- Bosnia-Herzegovina
 - Walking
 
 ---
