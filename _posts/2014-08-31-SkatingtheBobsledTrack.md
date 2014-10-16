@@ -2,9 +2,8 @@
 layout: blog_post
 title: Skating the Bobsled Track
 tags: 
-- skateboarding
-- Bosnia
-- Sarajevo
+- Skateboarding
+- Bosnia-Herzegovina
 
 ---
 
