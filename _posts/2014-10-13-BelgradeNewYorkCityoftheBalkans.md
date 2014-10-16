@@ -2,9 +2,8 @@
 layout: blog_post
 title: Belgrade - New York City of the Balkans
 tags: 
-- Balkans
 - Serbia
-- skatepark
+- Skatepark
 
 ---
 
