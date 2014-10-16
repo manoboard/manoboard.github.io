@@ -3,7 +3,6 @@ layout: blog_post
 title: Dubrovnik in Photos
 tags: 
 - Croatia
-- Dubrovnik
 - Scenery
 
 ---
