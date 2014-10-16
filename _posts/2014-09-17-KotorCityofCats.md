@@ -3,7 +3,6 @@ layout: blog_post
 title: Kotor - City of Cats
 tags: 
 - Wildlife
-- Kotor
 - Montenegro
 
 ---
