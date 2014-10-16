@@ -3,10 +3,9 @@
 layout: blog_post
 title: Finding Sarajevo Through Skateboarding
 tags: 
-- skateboarding
-- Sarajevo
-- Bosnia
-- skatepark
+- Skateboarding
+- Bosnia-Herzegovina
+- Skatepark
 
 ---
 
