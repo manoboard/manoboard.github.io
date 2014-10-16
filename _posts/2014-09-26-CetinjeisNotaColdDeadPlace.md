@@ -3,8 +3,7 @@ layout: blog_post
 title: Cetinje is Not a Cold Dead Place
 tags: 
 - Montenegro
-- Balkans
-- Cetinje
+- Ruin-Porn
 
 ---
 
