@@ -1,9 +1,9 @@
 ---
 layout: blog_post
-title: Overland, Under Pressure
+title: Overland - Under Pressure
 tags: 
-Macedonia
-Transit
+- Macedonia
+- Transit
 
 ---
 
