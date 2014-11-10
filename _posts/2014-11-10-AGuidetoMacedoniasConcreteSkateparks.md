@@ -71,7 +71,7 @@ The final park on my list is the one that has me shaking my head the most.  Whil
 
 <a href="https://www.flickr.com/photos/125061170@N06/15139225863/" title="image by manoboard88, on Flickr"><img src="https://farm6.staticflickr.com/5610/15139225863_4f926ef52e_z.jpg" width="640" height="480" alt="image"></a>
 
-<a href="https://www.flickr.com/photos/125061170@N06/15139225863/" title="image by manoboard88, on Flickr"><img src="https://farm6.staticflickr.com/5610/15139225863_4f926ef52e_z.jpg" width="640" height="480" alt="image"></a>
+<a href="https://www.flickr.com/photos/125061170@N06/15573247388/" title="image by manoboard88, on Flickr"><img src="https://farm8.staticflickr.com/7522/15573247388_f10ddcba51_z.jpg" width="640" height="480" alt="image"></a>
 
 One might read this and argue that I'm being a bit harsh. After all, not every city can have a city-wide skatepark plan like Portland and Seattle. However, the fact that I did not spot a single other person using these parks in my two weeks in the Former Yugoslav Republic of Macedonia suggests to me that I'm not their only critic.
 
