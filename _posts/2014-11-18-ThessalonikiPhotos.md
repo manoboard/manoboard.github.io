@@ -13,7 +13,7 @@ I'm far from a perfectionist, but given the opportunity to go to "every country"
 
 No problem.
 
- Jovche was to drive me to the northern Greek town of Lerrin, which is its name in the Macedonian language. However, once in Greece, to avoid angering locals, one must refer to the town by its Greek name, Florina. This is the case with municipalities in both countries; the Greeks have their names, and the Macedonians have their own. This requires one to constantly be on their guard when talking about where they have been and where they are going.  Luckily, I managed to avoid angering anyone on either side.  
+ Jovche was to drive me to the northern Greek town of Lerin, which is its name in the Macedonian language. However, once in Greece, to avoid angering locals, one must refer to the town by its Greek name, Florina. This is the case with municipalities in both countries; the Greeks have their names, and the Macedonians have their own. This requires one to constantly be on their guard when talking about where they have been and where they are going.  Luckily, I managed to avoid angering anyone on either side.  
 
 If I were to plan my trip again, I would allot more time for Thessaloniki. It is an incredibly fast paced, crowded city where coffee shops are bordered by ancient ruins, and tradition lives in unison with modernity.  The city is packed to the brim with history, which is displayed nicely in numerous impressive museums. The food is incredible too, but that's no surprise. Many people speak English there as well, which is lucky because unlike its Cyrillic cousin, the Greek alphabet is not so easy to pick up.
 
