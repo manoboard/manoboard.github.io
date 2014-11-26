@@ -18,7 +18,7 @@ Despite its ambiguity, the notion of authenticity remains a key component in the
 
 In Mark Twain's classic work of travel literature, *The Innocents Abroad*, there is a quote that addresses this desire for difference. He writes:
 
->_"We wanted something thoroughly and uncompromisingly foreign - foreign from top to bottom - foreign from centre to >circumference - foreign inside and outside and all around - nothing any where about it to dilute its foreignness - nothing >to remind us of any other people or any other land under the sun."_
+>_"We wanted something thoroughly and uncompromisingly foreign - foreign from top to bottom - foreign from centre to circumference - foreign inside and outside and all around - nothing any where about it to dilute its foreignness - nothing to remind us of any other people or any other land under the sun."_
 
 For many years, this passage resonated closely with my dreams of traveling the world. I wanted to experience places far different from my home, and to return having uncovered profound truths about the nature of mankind - or some nonsense along those lines.  Now that my dream has become a reality, I have begun to rethink Twain's words. Where I once found pure enthusiasm for new and exciting experiences, I now find the trademark satirical rendering so famously associated with the author's work. Perhaps Twain's aim was actually to point out the absurdity in thinking that people outside of the United States live fundamentally different lives than us "normal" folk. Perhaps he too would note that eating a hamburger in Bulgaria, surrounded by Bulgarian people, is by default an "authentic" Bulgarian experience.
 
