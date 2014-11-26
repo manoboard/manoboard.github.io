@@ -1,6 +1,6 @@
 ---
 layout: blog_post
-title: Well, How Did I Get Here?
+title: Sofia - Authenticity Vs. Difference
 tags: 
 - Authenticity
 - Bulgaria
