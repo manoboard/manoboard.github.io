@@ -1,3 +1,12 @@
+---
+
+layout: blog_post
+title: My Balkan Top 10
+tags: 
+- 
+- 
+
+---
 
 Making a "best of" list is risky business, so I'll start with a disclaimer. Of the 22 locations I visited during the first four months of my trip, there is not a single one that I wouldn't go back to given the opportunity. Additionally, a lot of factors such as weather, accommodations, and interactions with locals - that could be completely different in future visits - played a major role in my experiences and ultimate decisions. What I'm trying to say here is that this list is very flexible. I considered not using a number system, but what fun is an unranked list? And, after all, there were some places that I did especially enjoy, and I believe they warrant special recognition. Anyway, now that I've sufficiently safeguarded myself from criticism, I present to you my top ten favorite places from the first four months of my trip.
 
@@ -25,7 +34,7 @@ I suppose it is only fitting that the city responsible for Sarajevo's brutal bea
 
 I had pretty low expectations going into Skopje. Whenever you hear anything about the city, it is in regards to the FYROM/Greek Macedonia name dispute, or the gargantuan and somewhat tacky makeover the city center is currently undergoing. I can't argue the latter; whoever designed the main drag may have had Rome in mind, but they ended up closer to Vegas. However, the gaudy marble statues and fountains are no match for all the other wonderful things the city has to offer. Of all the places I went, I found that great grilled food was the most readily available in Skopje. Someone with not a clue about where to eat could walk through the city center and find numerous places with extremely cheap, extremely delicious Cevapcici, pljeskavica, Shopska salad, and baked beans unlike any I've had elsewhere. 
 
-## 5. Nis, Serbia 
+## 5. Nis Serbia 
 <a href="https://www.flickr.com/photos/125061170@N06/16009346471/" title="image by manoboard88, on Flickr"><img src="https://farm8.staticflickr.com/7537/16009346471_7bdd9cb402_z.jpg" width="640" height="480" alt="image"></a>
 
 While I had low expectations going into Skopje, I really had no expectations going into Nis. All I knew was that it was Serbia's third largest city, and that it contained within its boundaries a miniramp and a monument made out of human skulls. It was also on the way to Kosovo, so I figured I might as well stop. I immediately took a liking to the city, and my three day stay quickly turned to six. The city is easy to navigate and contains a lot of sights for its size. The skatepark was small, but fun, and the locals were eager to make friends. I also managed to order a couple meals entirely in Serbian, a feat of cultural proficiency that I am yet to repeat.
