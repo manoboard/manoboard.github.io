@@ -42,12 +42,12 @@ While I had low expectations going into Skopje, I really had no expectations goi
 ## 6. Plovdiv, Bulgaria 
 <a href="https://www.flickr.com/photos/125061170@N06/15825537767/" title="image by manoboard88, on Flickr"><img src="https://farm9.staticflickr.com/8565/15825537767_5510ba55e6_z.jpg" width="640" height="480" alt="image"></a>
 
-Coming at the end of my first leg, Plovdiv was the quiet and relaxing getaway that I needed before moving on to the string of notoriously overwhelming cities set to follow. Its quiet cobblestone streets could make a romantic out of even the most callous of hearts, and its several hilltops, adorned with everything from Thracian and Romans ruins, to colossal Red Army Statues, tell the story of an ancient metropolis that has seen and endured it all.
+Coming at the end of my first leg, Plovdiv was the quiet and relaxing getaway that I needed before moving on to the string of notoriously overwhelming cities set to follow. Its quiet cobblestone streets could make a romantic out of even the most callous of hearts, and its several hilltops, adorned with everything from Thracian and Romans ruins to colossal Red Army Statues, tell the story of an ancient metropolis that has seen and endured it all.
 
 ## 7. Ulcinj, Montenegro
 <a href="https://www.flickr.com/photos/125061170@N06/15823884448/" title="image by manoboard88, on Flickr"><img src="https://farm8.staticflickr.com/7483/15823884448_f32295085a_z.jpg" width="640" height="480" alt="image"></a>
 
-It is rumored that the sand on Ulcinj's Velika Plaza, or "Big Beach", contains mystical powers. I would certainly have to agree. On many occasions, I spent the afternoon gazing over the crystal clear water with a beer in my hand and not another soul in sight. Every so often I found myself quoting Kurt Vonnegut aloud saying, "if this isn't nice, what is?" So magical are these fine grains of white sand that one weekday afternoon I found myself randomly compelled to take a dip au naturale - something I have never done elsewhere.
+It is rumored that the sand on Ulcinj's Velika Plaza, or "Great Beach", contains mystical powers. I would certainly have to agree. On many occasions, I spent the afternoon gazing over the crystal clear water with a beer in my hand and not another soul in sight. Every so often I found myself quoting Kurt Vonnegut aloud saying, "if this isn't nice, what is?" So magical are these fine grains of white sand that one weekday afternoon I found myself randomly compelled to take a dip au naturale - something I have never done elsewhere.
 
 ## 8. Zabljak/Durmitor National Park, Montenegro
 <a href="https://www.flickr.com/photos/125061170@N06/15824019310/" title="image by manoboard88, on Flickr"><img src="https://farm8.staticflickr.com/7556/15824019310_2e2583ae54_z.jpg" width="640" height="480" alt="image"></a>
