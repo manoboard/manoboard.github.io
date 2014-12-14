@@ -52,7 +52,7 @@ It is rumored that the sand on Ulcinj's Velika Plaza, or "Big Beach", contains m
 ## 8. Zabljak/Durmitor National Park, Montenegro
 <a href="https://www.flickr.com/photos/125061170@N06/15824019310/" title="image by manoboard88, on Flickr"><img src="https://farm8.staticflickr.com/7556/15824019310_2e2583ae54_z.jpg" width="640" height="480" alt="image"></a>
 
-If you saw the pictures from my earlier post about Durmitor National Park, it's no surprise that it made my top ten. The town of Zabljak is every bit the cosy mountain village one wants it to be, and feels remote both in location and time period. Conveniently, it is only a couple hours from the country's more popular destinations, and can be reached very easily by bus. There are even some ski lifts in the park, making me wonder if a winter excursion to Montenegro's northeast corner might be in order.
+If you saw the pictures from my earlier post about Durmitor National Park, it should come as no surprise that it made my top ten. The town of Zabljak is every bit the cosy mountain village one wants it to be, and feels remote both in location and time period. Conveniently, it is only a couple hours from the country's more popular destinations, and can be reached very easily by bus. There are even some ski lifts in the park, making me wonder if a winter excursion to Montenegro's northeast corner might be in order.
 
 ## 9. Cetinje, Montenegro
 <a href="https://www.flickr.com/photos/125061170@N06/15825261299/" title="image by manoboard88, on Flickr"><img src="https://farm8.staticflickr.com/7551/15825261299_84998a84fc_z.jpg" width="640" height="480" alt="image"></a>
