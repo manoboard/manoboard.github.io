@@ -1,9 +1,9 @@
 
 ---
+
 layout: blog_post
 title: Kuala Lumpur - Stop 1 of Leg 2
 tags: 
-
 - Malaysia
 
 ---
