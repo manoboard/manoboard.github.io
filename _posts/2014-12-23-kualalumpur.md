@@ -1,12 +1,12 @@
 
 ---
 layout: blog_post
-title: Kuala Lumpur - Stop #1 of Leg #2
+title: Kuala Lumpur - Stop 1 of Leg 2
 tags: 
+
 - Malaysia
 
 ---
-
 <a href="https://www.flickr.com/photos/125061170@N06/15900909949/" title="image by manoboard88, on Flickr"><img src="https://farm8.staticflickr.com/7575/15900909949_d0307c0b1d_z.jpg" width="640" height="480" alt="image"></a>
 
 Descending through the thick layer of clouds hovering over my destination, substantial pellets of precipitation rapped on my window to alert me at my arrival in an altogether unfamiliar place. Any new country brings with it certain anxieties, but this was a new continent, a new climate, a new world. After a smooth, air conditioned connection to KL Sentral train station and a quick and uneventful taxi ride to my hotel, I stepped out into a cloud of stagnant humidity, the gazes of local citizens just as hot on my jet lagged and overwhelmed back. I was quickly reminded of Sarajevo, and Dresden two years before that, to the surreal feeling one gets when arriving via plane in a faraway land. The feeling is of being thrown headlong into a world that has been existing without you - one that will continue to do so if you let it. I crawled into bed; I would deal with this in the morning.
