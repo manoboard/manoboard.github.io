@@ -10,7 +10,7 @@ tags:
 
 <a href="https://www.flickr.com/photos/125061170@N06/16213636025/" title="image by manoboard88, on Flickr"><img src="https://farm8.staticflickr.com/7508/16213636025_6747951cbb_z.jpg" width="640" height="480" alt="image"></a>
 
-Prior to a couple weeks ago, I had never been to a tropical island. Though George Town's position on the island of Penang wasn't the only reason I chose to go there, the thought of spending New Years off the western coast of the Malaysian peninsula certainly had a nice ring to it. My experience there was largely what I pictured a tropical vacation to be. There were fruit drinks, monkeys, large lizards, and of course, skateboarding. Perhaps all the sun fried my brain, but I'm void of thoughtful commentary at the moment, so here are a bunch of pictures to do the elaborating for me.
+Prior to a couple weeks ago, I had never been to a tropical island. Though George Town's position on the island of Penang wasn't the only reason I chose to go there, the thought of ringing in the new year off the western coast of the Malaysian peninsula certainly had a nice ring to it. My experience there was largely what I pictured a tropical vacation to be. There were fruit drinks, monkeys, large lizards, and of course, skateboarding. Perhaps all the sun fried my brain, but I'm void of thoughtful commentary at the moment, so here are a bunch of pictures to do the elaborating for me.
 
 <a href="https://www.flickr.com/photos/125061170@N06/16187777456/" title="image by manoboard88, on Flickr"><img src="https://farm8.staticflickr.com/7484/16187777456_e225b0b67b_z.jpg" width="640" height="480" alt="image"></a>
 
