@@ -44,7 +44,7 @@ It is somewhat of a stretch to use the word "park" in the description of Ipoh's 
 
 #Kuala Lumpur Metro Area
 
-**###Putrajaya Challenge Park
+###Putrajaya Challenge Park
 
 This park holds the somewhat meaningless distinction of being the first Asian skatepark I ever skated. In retrospect I chose well. It is large, smooth, and full of lines. I will say that for a park of its size, it is lacking in the coping department. Even in the areas with transition, most of the features are closer to banks than quarter pipes, which is great if you're really into ollieing or just pumping around, but I like to get a grind in every now and again, and on numerous occasions I zoomed eagerly through a corner only to find more of the same banked landscape on the other side. A little anti-climactic if you ask me. Of course, my assessment is to be taken with a grain of salt as, after the half hour train ride and hour of pushing that it took to get there, the typical monsoon season afternoon rains set in like clockwork, and cut my fun short.
 
