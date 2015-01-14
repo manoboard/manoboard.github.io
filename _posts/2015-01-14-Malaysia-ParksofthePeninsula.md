@@ -10,7 +10,7 @@ tags:
 
 During the first four months of my travels skateparks were scarce. Even when a city did have one, chances were it wasn't up to par with what I was used to back home (poor me, right?). Thus, I was thrilled to find that not only are skateparks relatively common in Malaysia, there are some really fun ones to boot! As a result, I spent more time skateboarding in my month on the peninsula than I did anywhere previously. To aid any wandering skateboarder who might happen upon my blog, I've compiled a list of all the parks I visited. It is by no means comprehensive, but provides a rough overview of what one can expect when traveling to the country, board in tow.
 
-#Penang
+##Penang
 
 Despite reportedly having two skateparks on its premises, the island of Penang seems to be void of a living breathing skateboarding population. My only encounter with another supposed skateboarder occurred as I was walking alongside an eight lane divided highway, having just nearly stepped on the rotting corpse of what at the time was the largest lizard I had ever seen (later that day I would see a living version of a similar size, then the next day I would nearly run over an even larger one at the skatepark). The boarder in question pulled his moped up alongside me, apparently unfazed by the lizard carcass or the traffic whizzing by us, and without once removing the cigarette from his mouth, asked where I was from and where I was heading, then informed me that he too "plays skateboard" and that there was a skatepark close by. I faked surprise, as I was not wandering aimlessly as I had told him, but rather in search of the very skatepark he mentioned. He offered to give me a ride there on the back of his moped, but I politely declined not so much because he was a stranger, but rather because I had never (and still never have) ridden on the front, middle, or back of a motor scooter. Fearing that I might meet a similar fate to that of the aforementioned reptile, I inquired as to the whereabouts of the park and said I might check it out after I finished walk to nowhere in particular.
 
@@ -29,7 +29,7 @@ The apparent lack of skateboarders on the island is not to say that the one park
 <a href="https://www.flickr.com/photos/125061170@N06/16270963062/" title="image by manoboard88, on Flickr"><img src="https://farm9.staticflickr.com/8665/16270963062_37a2e6d638_z.jpg" width="640" height="480" alt="image"></a>
 
 
-#Ipoh
+##Ipoh
 
 It is somewhat of a stretch to use the word "park" in the description of Ipoh's public skateboarding facilities. The "park" consists of a concrete miniramp, maybe 6 feet tall and 5 feet wide, set in the grass next to a circular ribbon of pavement where a broken concrete bench has been turned into a makeshift ledge. I didn't get a chance to skate either due to inclement weather, but when I feel the urge to poke fun at the rather measly offering, I am reminded of the countless towns and cities in the USA that fail to provide even such a small modicum of acknowledgement to the skateboarders in their vicinity. So while it may sound like a cliche, it is true that this miniramp and accompanying bench are better than nothing. There is also a small DIY project in the city, but that's all I'll mention about it lest one of my countless readers "blow up the spot" as the saying goes.
 
