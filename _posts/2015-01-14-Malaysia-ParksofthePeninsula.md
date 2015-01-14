@@ -8,7 +8,7 @@ tags:
 
 ---
 
-During the first four months of my travels skateparks were scarce. Even when a city did have one, chances were it wasn't up to par with what I was used to back home (poor me, right?). Thus, I was thrilled to find that not only are skateparks relatively common in Malaysia, there are some really fun ones to boot! As a result, I spent more time skateboarding in my month on the peninsula than I did anywhere previously. To aid any wandering skateboarder who might happen upon my blog, I've compiled a list of all the parks I visited. It is by no means comprehensive, but provides a rough overview of what one can expect when traveling to the country, board in tow.
+Skateparks were scarce during the first four months of my travels. Even when a city did have one, chances were it wasn't up to par with what I was used to back home (poor me, right?). Thus, I was thrilled to find that not only are skateparks relatively common in Malaysia, there are some really fun ones to boot! As a result, I spent more time skateboarding in my month on the peninsula than I did anywhere previously. To aid any wandering skateboarder who might happen upon my blog, I've compiled a list of all the parks I visited. It is by no means comprehensive, but provides a rough overview of what one can expect when traveling to the country, board in tow.
 
 ##Penang
 
