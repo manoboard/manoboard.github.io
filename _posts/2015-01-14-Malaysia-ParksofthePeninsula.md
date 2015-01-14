@@ -41,9 +41,10 @@ It is somewhat of a stretch to use the word "park" in the description of Ipoh's 
 
 <a href="https://www.flickr.com/photos/125061170@N06/16084079428/" title="image by manoboard88, on Flickr"><img src="https://farm9.staticflickr.com/8576/16084079428_b425658771_z.jpg" width="640" height="480" alt="image"></a>
 
+
 #Kuala Lumpur Metro Area
 
-##Putrajaya Challenge Park
+###Putrajaya Challenge Park
 
 This park holds the somewhat meaningless distinction of being the first Asian skatepark I ever skated. In retrospect I chose well. It is large, smooth, and full of lines. I will say that for a park of its size, it is lacking in the coping department. Even in the areas with transition, most of the features are closer to banks than quarter pipes, which is great if you're really into ollieing or just pumping around, but I like to get a grind in every now and again, and on numerous occasions I zoomed eagerly through a corner only to find more of the same banked landscape on the other side. A little anti-climactic if you ask me. Of course, my assessment is to be taken with a grain of salt as, after the half hour train ride and hour of pushing that it took to get there, the typical monsoon season afternoon rains set in like clockwork, and cut my fun short.
 
@@ -55,7 +56,7 @@ This park holds the somewhat meaningless distinction of being the first Asian sk
 
 <a href="https://www.flickr.com/photos/125061170@N06/16084198930/" title="image by manoboard88, on Flickr"><img src="https://farm8.staticflickr.com/7569/16084198930_8bc198b514_z.jpg" width="640" height="480" alt="image"></a>
 
-##Shah Alam Extreme Park
+###Shah Alam Extreme Park
 
 I successfully skated the Shah Alam Extreme park two out of the four times I ventured there. Like Putrajaya, there is a bit of a trek involved in getting to the park, and in the time the journey takes, distant storm clouds can move in and wash away any hope of skateboarding that day. Though not an especially arduous trip, one must ride the KTM Kommuter train from Kl Sentral Station about 10 stops out of the city before unloading and reloading into a taxi for another ten minute ride. This, of course, is provided the taxi driver knows where they are going, and doesn't make a wrong turn, only to stop and drive a quarter mile in reverse against the wishes of the now oncoming traffic. This was the case during trip number 2 to Shah Alam. Had this happened back home, I would have been beside myself with fear, but being in another country, I chalked it up as just something drivers there do. I was later informed that his actions were just as outlandish there as they would be anywhere else. The park is a bit rough in spots, but the three foot bowl with spine is a blast to cruise around, as are all the features along the outskirts of the park. Provided you can make it there before the daily downpour, this is my top pick for Kuala Lumpur skateparks.
 
@@ -67,7 +68,7 @@ I successfully skated the Shah Alam Extreme park two out of the four times I ven
 
 <a href="https://www.flickr.com/photos/125061170@N06/16085899919/" title="image by manoboard88, on Flickr"><img src="https://farm9.staticflickr.com/8611/16085899919_6b3c883747_z.jpg" width="640" height="480" alt="image"></a>
 
-##Petaling Jaya
+###Petaling Jaya
 
 Though not the most outstanding that The Kuala Lumpur Metro Area has to offer, Petaling Jaya is perhaps the most easily accessible from the city center. The old sheet metal ramps seem to be lacking proper support in places, and bellow as if being painfully assaulted when ridden. This is not to say that the park isn't any fun, though. There is a small flybox that is a blast to float over, a bunch of rails and boxes to mess around on, and all the kids there are stoked to meet somebody from out of town. There is also a really good Nasi Kandar restaurant right around the corner; an incentive with the potential to draw me to any park regardless of quality.
 
@@ -77,7 +78,7 @@ Though not the most outstanding that The Kuala Lumpur Metro Area has to offer, P
 
 <a href="https://www.flickr.com/photos/125061170@N06/16271958915/" title="image by manoboard88, on Flickr"><img src="https://farm8.staticflickr.com/7539/16271958915_d735e967db_z.jpg" width="640" height="480" alt="image"></a>
 
-##Mont Kiara
+###Mont Kiara
 
 With two really fun concrete parks within a reasonable distance, one would think Kuala Lumpur's expert skateboarders might frequent those rather than the back and forth Skatepark-of-Tampa-esque Mont Kiara Skatepark. The fact that they do not says something about the type of skating that is popular in the country (and seemingly everywhere in the world outside the United States). The majority of skateboarders of a certain skill level are far more interested in rail and ledge tricks than transition ones, which works in my favor, because it leaves all that other stuff empty for me. Mont Kiara is the place where all the contests take place, and all the demos happen when pro teams come to town. The array of ledges, rails, banks, and quarter pipes yield countless opportunities for tricks if you've got them - which many of the skaters there do.
 
@@ -87,7 +88,7 @@ With two really fun concrete parks within a reasonable distance, one would think
 
 <a href="https://www.flickr.com/photos/125061170@N06/16271249602/" title="image by manoboard88, on Flickr"><img src="https://farm8.staticflickr.com/7470/16271249602_86c2f7756e_z.jpg" width="640" height="480" alt="image"></a>
 
-##Red Bull DIY
+###Red Bull DIY
 
 Unlike the DIY park I stumbled upon in Ipoh, I have no reservations in discussing the Red Bull DIY park in Kuala Lumpur. The idea of a DIY park funded by a zillion dollar company like Red Bull seems a bit contradictory, but it guess the notion is kinda cool. Personally, I think It would have made a lot more sense and would have been a lot more generous if they had just sprung to have a park built rather than saying "here's some money, build one for yourselves." Abandoned rather quickly after its inception, all that remain are a couple ledges and a bank with coping set on a patch of rough concrete, the sound of which is drowned out by the three growling German shepherds lunging at the fence surrounding the adjacent mansion.
 
