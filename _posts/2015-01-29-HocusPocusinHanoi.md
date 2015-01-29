@@ -39,3 +39,5 @@ Yet, when considering my current situation, I'm forced to concede that there is 
 <a href="https://www.flickr.com/photos/125061170@N06/16206747040/" title="Hanoi 9 by manoboard88, on Flickr"><img src="https://farm9.staticflickr.com/8622/16206747040_423cd38452_z.jpg" width="640" height="480" alt="Hanoi 9"></a>
 
 <a href="https://www.flickr.com/photos/125061170@N06/16393263212/" title="Hanoi 10 by manoboard88, on Flickr"><img src="https://farm8.staticflickr.com/7332/16393263212_fbc92c390b_z.jpg" width="640" height="480" alt="Hanoi 10"></a>
+
+It's for fertility. Grow up.
