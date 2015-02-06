@@ -1,7 +1,9 @@
 ---
+
 layout: blog_post
-title: Nha Trang: Travels in Southeast Siberia
+title: Nha Tran - Travels in Southeast Siberia
 tags: 
+
 - Vietnam
 - 
 - 
