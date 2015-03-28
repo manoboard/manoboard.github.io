@@ -1,6 +1,6 @@
 ---
 layout: blog_post
-title: Lijiang, Dubrovnik East
+title: Lijiang - Dubrovnik East
 tags: 
 - China
 - Scenery
