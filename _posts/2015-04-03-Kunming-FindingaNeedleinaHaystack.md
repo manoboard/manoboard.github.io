@@ -1,17 +1,13 @@
 
 
 ---
-
 layout: blog_post
-title: Kunming - Finding a Needle in a Haystack
+title: Kunming
 tags: 
-
-- skateboarding
+- Skateboarding
 - China
-- 
 
 ---
-
 
 <iframe src="https://player.vimeo.com/video/123802406" width="500" height="281" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe> <p><a href="https://vimeo.com/123802406">Needle In a Haystack</a> from <a href="https://vimeo.com/user1447562">Kevin Bicknell</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
 
