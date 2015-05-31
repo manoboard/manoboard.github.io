@@ -2,9 +2,9 @@
 layout: blog_post
 title: Quantity Over Quality in the World's Biggest Skateparks
 tags: 
-- skateboarding
+- Skateboarding
 - China
-- skatepark
+- Skatepark
 
 ---
 
