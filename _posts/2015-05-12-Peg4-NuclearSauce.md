@@ -2,8 +2,8 @@
 layout: blog_post
 title: Peg 4 - Nuclear Sauce
 tags: 
-- skateboarding
-- skatepark
+- Skateboarding
+- Skatepark
 - 
 
 ---
