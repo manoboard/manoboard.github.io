@@ -1,6 +1,6 @@
 ---
 layout: blog_post
-title: Malaysia - Parks of the Peninsula
+title: Malaysia - Skateparks of the Peninsula
 tags: 
 - Skateboarding
 - Malaysia
