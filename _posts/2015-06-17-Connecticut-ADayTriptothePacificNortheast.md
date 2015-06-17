@@ -1,6 +1,6 @@
 ---
 layout: blog_post
-title: Connecticut - Daytripping to The Pacific Northeast
+title: Connecticut - A Day Trip to The Pacific Northeast
 tags: 
 - Skateboarding
 - United States
