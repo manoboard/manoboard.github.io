@@ -1,6 +1,6 @@
 ---
 layout: blog_post
-title: Connecticut - 35mm - Ha Long Bay
+title: 35mm - Ha Long Bay
 tags: 
 - Vietnam
 - 35mm
