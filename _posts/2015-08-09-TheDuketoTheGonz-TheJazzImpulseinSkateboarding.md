@@ -8,7 +8,7 @@ tags:
 
 ---
 
-Skateboarding and music have always gone hand in hand. The pairing is only fitting given that the two mediums share several core values: individuality, creativity, self-expression, *style*. Accordingly, the interaction between the two often goes far beyond mere cultural similarities.  For proof of this, one need not look further than the overwhelming presence of Dinosaur Jr-related material that contributed immensely to the mise en scène of Alien Workshop’s 2009 video, *Mindfield*.  The four tracks and numerous appearances by frontman, J Mascis, served as a celebration of the long-standing relationship between the brand and the band.
+Skateboarding and music have always gone hand in hand. The pairing is only fitting given that the two mediums share several core values: individuality, creativity, self-expression, *style*. Accordingly, the interaction between the two often goes far beyond mere cultural similarities.  For proof of this, one need not look further than the overwhelming presence of Dinosaur Jr-related material that contributed immensely to the mise en scène of Alien Workshop’s 2009 video, *Mind Field*.  The four tracks and numerous appearances by frontman, J Mascis, served as a celebration of the long-standing relationship between the brand and the band.
 
 <iframe width="480" height="360" src="https://www.youtube.com/embed/EfZeGhnLdUM" frameborder="0" allowfullscreen></iframe>
 
