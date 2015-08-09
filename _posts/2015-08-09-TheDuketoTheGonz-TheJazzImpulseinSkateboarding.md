@@ -1,6 +1,6 @@
 ---
 layout: blog_post
-title: The Duke to The Gonz - The Jazz Impulse in Skateboarding
+title: From The Duke to The Gonz - The Jazz Impulse in Skateboarding
 tags: 
 - Skateboarding
 -
