@@ -21,20 +21,33 @@ Unfortunately, many people don’t have the time to learn a new alphabet before 
 
 *Appreciation:  
 
-*Aside from the alphabetic learning that took place, I do feel compelled to note that the museum housed quite an *impressive and enjoyable collection of art, and for those so inclined, would be worth visiting for that reason *alone. 
+  *Aside from the alphabetic learning that took place, I do feel compelled to note that the museum housed quite an 
+  *impressive and enjoyable collection of art, and for those so inclined, would be worth visiting for that reason
+  *alone. 
 
 *Understanding: 
 
-*When I left the museum it was as if a layer in the veil separating me and the region had been peeled away.  I was *seeing things in a completely different light, and though being able to read is only the first in a 2 step process *of translation, I was now able to recognize certain words that I had already learned to speak, and began to rapidly *add new terms to my repertoire. 
+  *When I left the museum it was as if a layer in the veil separating me and the region had been peeled away.  I was
+  *seeing things in a completely different light, and though being able to read is only the first in a 2 step process
+  *of translation, I was now able to recognize certain words that I had already learned to speak, and began to
+  *rapidly add new terms to my repertoire. 
 
 *Reflection: 
 
-*I experienced memories and their associated emotions that I had long forgotten. How many of us can easily conjure *memories of learning to read? I certainly could not, but when I began to sound out the names of artists in that *museum, the memory of sitting with a parent, both of us swelling with pride and excitement as I sounded out words *correctly, came back as vividly as if it had happened the day before. This deepened my appreciation for the *institution and the material at hand.
+  *I experienced memories and their associated emotions that I had long forgotten. How many of us can easily conjure
+  *memories of learning to read? I certainly could not, but when I began to sound out the names of artists in that
+  *museum, the memory of sitting with a parent, both of us swelling with pride and excitement as I sounded out words
+  *correctly, came back as vividly as if it had happened the day before. This deepened my appreciation for the
+  *institution and the material at hand.
 
 *Motivation: 
 
-*For the rest of my time in countries utilizing the Cyrillic alphabet, I challenged myself to read anything and *everything I could in the local language.  I woke each morning excited to enter establishments that used only *Cyrillic script.  This ability made me feel closer to the places I was in and gave me the sense that I was getting *an authentic experience.  I wanted to keep this experience going, and each day felt motivated to step further and 
-*further outside of my comfort zone. Almost four months into the trip, this was magical in thwarting off potential *travel burnout.
+  *For the rest of my time in countries utilizing the Cyrillic alphabet, I challenged myself to read anything and
+  *everything I could in the local language.  I woke each morning excited to enter establishments that used only
+  *Cyrillic script.  This ability made me feel closer to the places I was in and gave me the sense that I was getting
+  *an authentic experience.  I wanted to keep this experience going, and each day felt motivated to step further and
+  *further outside of my comfort zone. Almost four months into the trip, this was magical in thwarting off potential
+  *travel burnout.
 
 This experience illustrates the potential for teaching through the identification of intersections between subjects. I went into the museum hoping to find peace and quiet, see some cool art, and maybe get a less glossy idea of what it’s like to be Macedonian, but left being able to experience the country (and much of the region) on a deeper level. I gained a life skill and a base upon which to build a lingual proficiency; something one might not expect from an art museum.
 
