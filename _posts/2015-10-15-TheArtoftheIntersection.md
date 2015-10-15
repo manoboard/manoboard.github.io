@@ -22,6 +22,7 @@ Unfortunately, many people don’t have the time to learn a new alphabet before 
 **Appreciation:**  
 
 Aside from the alphabetic learning that took place, I do feel compelled to note that the museum housed quite an impressive and enjoyable collection of art, and for those so inclined, would be worth visiting for that reason alone. 
+
 **Understanding:** 
 
 When I left the museum it was as if a layer in the veil separating me and the region had been peeled away.  I was seeing things in a completely different light, and though being able to read is only the first in a 2 step process
