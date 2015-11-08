@@ -1,6 +1,6 @@
 ---
 layout: blog_post
-title: Top 10 Skateparks - ~~Best~~ Favorite in Travel, 2015
+title: Top 10 Skateparks - Favorite in Travel, 2015
 tags: 
 - Skateboarding
 - 
