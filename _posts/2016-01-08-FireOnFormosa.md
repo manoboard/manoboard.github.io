@@ -28,4 +28,4 @@ I have since discovered that the popularity and shock value of this once unique 
 
 <a data-flickr-embed="true"  href="https://www.flickr.com/photos/125061170@N06/19503294431/in/datetaken/" title="Bombarding Handan"><img src="https://farm1.staticflickr.com/424/19503294431_4e06c5cfec_z.jpg" width="640" height="426" alt="Bombarding Handan"></a><script async src="//embedr.flickr.com/assets/client-code.js" charset="utf-8"></script>
 
-*This piece can be found in issue two of Analog Companion, a zine dedicated to the pursuit of travel writing and photography. For more info, head over to <http://layofftheiodine.com>
+*This piece can be found in issue two of Analog Companion, a zine dedicated to the pursuit of travel writing and photography. For more info, head over to <http://layofftheiodine.com>*
